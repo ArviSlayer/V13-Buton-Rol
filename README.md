@@ -1,17 +1,27 @@
 # 🤖・Bota BİLEREK 4 Farklı Hata Bırakıldı
 ⭐・**4 Hatayıda Çözüp Botu Başlatabilirsiniz**
 # 
+#
+
+# 💵・Hatalarla Uğraşmak İstemiyorsanız Satın Alabilirsiniz
+https://www.itemsatis.com/discord/buton-rol-altyapisi-1741377.html
+
+https://www.itempazar.com/discord-uye-nitro-sunucu/buton-rol-altyapisi-109930
+# 
+#
 
 # 📝・ÖZELLİKLERİ
 🎄・**Full Ayarlamalı**
 #
+#
 
 # 📞・İLETİŞİM
-💙・**Discord:** ArviS#0011
+💙・**Discord:** arvis.
 
 🔗・**Destek Sunucusu:** [Tıkla](https://discord.gg/3AfAFE5qYg)
 
 💜・**Instagram:** [Tıkla](https://www.instagram.com/arvis_here/)
+#
 #
 
 # 📷・GÖRSELLER
@@ -24,4 +34,7 @@
 ![Screenshot_4](https://user-images.githubusercontent.com/69751083/210556616-812b9df2-031a-4a94-a2e2-1b781d4994b3.png)
 
 ![Screenshot_5](https://user-images.githubusercontent.com/69751083/210556627-39fe1a66-3ef9-46e2-8429-545821fa4b4e.png)
-
+#
+#
+# ❗・NOT
+😙・Hata çözümleri için yardım istemeyin. Hatalar, "gerçekten bilgisi olupta çözebilenlerle kullansın" diye var. O yüzden "hataları söyler misin? Hatalar konusunda yardımcı olur musun?" gibi sorularla gelmeyin.
